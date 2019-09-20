@@ -1,0 +1,2 @@
+# Front-End-Web-developer
+Hello. I am a full-time freelancer with a lot of work experience in front-end development. I'm very responsible for my work and with good communication skills. I always discuss the details of the project and stay in touch. You can contact me at any time. My front-end skills: ✔️HTML5, W3C valid, responsive ✔️CSS3, ✔️ JavaScript, ✔️ WordPress, ✔️ Responsive frameworks, Bootstrap, ✔️ Custom Websites Development ✔ I'm with pleasure for you will: ✓ build a responsive website; ✓work with sketch and photoshop.
